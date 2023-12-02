@@ -1,4 +1,4 @@
-##Ola! EU sou Cleiton Arguelho 👋
+##Ola! Eu sou Cleiton Arguelho 👋
 
 
 
